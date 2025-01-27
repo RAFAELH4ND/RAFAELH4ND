@@ -10,4 +10,3 @@ https://github.com/user-attachments/assets/f7126f95-403e-419b-9bdc-36e1a7614edb
 https://github.com/user-attachments/assets/777a583f-136a-4600-b7fa-0ce134494efd
 
 ![d5718ecc3eb246cea6f691a8708790ca](https://github.com/user-attachments/assets/24fed317-139e-4583-a38c-cd9ce110b757)
-![Untitled1073_20250127193240](https://github.com/user-attachments/assets/e5657277-bdd7-4f5c-8c6c-3cff689a5840)
